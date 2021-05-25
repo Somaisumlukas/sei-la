@@ -9,3 +9,5 @@ kkkkkkkkkkkkkkkkkkkkkkkkkkkk
 
 
 kopsakdlkjaskdaskdndjkfndkfmdklnjnaflkfmklnS
+
+fim de jogo vou deixar isso em jotaquest
